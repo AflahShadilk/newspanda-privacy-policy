@@ -1,0 +1,1 @@
+# newspanda-privacy-policy
